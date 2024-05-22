@@ -1,10 +1,10 @@
 ### isso é gambá ou mangangá
 
-mariane emiri
+**mariane emiri**
 
 ### entre em contato 📬
 
 📧 marianeemiri@gmail.com
 📸 marianeemiri
 
-![](https://tenor.com/b2n7k.gif)
+![](https://media1.tenor.com/m/bQ41EWXNeEsAAAAd/stan-marsh-dancing.gif)
